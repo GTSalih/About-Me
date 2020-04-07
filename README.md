@@ -1,5 +1,5 @@
 About Me
 
-Spencer Curtis
+Galobawi Salih
 
-Favorite Color: Blue
+Favorite Color: Royal Blue
